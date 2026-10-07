@@ -1,0 +1,2 @@
+# premium-anthotype-001-anthotype-plant-emulsion-fad
+Tired of guessing your anthotype fade timelines and emulsion ratios? The Anthotype Plant Emulsion &amp; Fade Print Lab gives you the structured workspace to document, calculate, and predict print outcomes before sunlight destroys your work.  This is the only Notion template built specifically for anthotype artists who need to track plant chemistry, emu
